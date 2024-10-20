@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @corohost
+- 👀 I’m interested in hosting
+- 🌱 Trying to make a better world
+- 📫 How to reach me: business@corohost.com
